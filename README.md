@@ -1,1 +1,1 @@
-# say--tahmin
+# SAYıI TAHMiN
