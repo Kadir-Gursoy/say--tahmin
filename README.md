@@ -1,1 +1,1 @@
-# SAYıI TAHMiN
+# SAYı TAHMiN
